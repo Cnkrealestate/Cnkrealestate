@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Cnkrealestate
+- 👋 Hi, I’m @vic
 - 👀 I’m interested in good quality lifes on earth
 - 🌱 I’m currently digging gold and well being.
 - 💞️ I’m looking to collaborate on earth online experiences and reflection
