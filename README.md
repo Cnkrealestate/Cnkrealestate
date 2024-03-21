@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @Cnkrealestate
 - 👀 I’m interested in good quality lifes on earth
-- 🌱 I’m currently learning toxic subjects
-- 💞️ I’m looking to collaborate on multiintrraction in experiences
-- 📫 How to reach me by employement
-- 😄 Pronouns: gold fishing for fam
-- ⚡ Fun fact: may the universe do favor on you
+- 🌱 I’m currently digging gold and well being.
+- 💞️ I’m looking to collaborate on earth online experiences and reflection
+- 📫 How to reach me by mails
+- 😄 Pronouns: you look pretty
+- ⚡ Fun fact: you looking good
 
 <!---
 Cnkrealestate/Cnkrealestate is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
