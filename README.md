@@ -2,7 +2,7 @@
 - 👀 I’m interested in good quality lifes on earth
 - 🌱 I’m currently digging gold and well being.
 - 💞️ I’m looking to collaborate on earth online experiences and reflection
-- 📫 How to reach me by mails
+- 📫 How to reach me by private mails 
 - 😄 Pronouns: you look pretty
 - ⚡ Fun fact: you looking good
 
